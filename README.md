@@ -36,4 +36,4 @@ Divirta-se explorando!
 
 Atenciosamente,
 
-Gabriel Cardoso, Felipe Soares, Isadora Kane, Antonio Tavares, Enzo Laquiz, Bruno da Silva, Beatriz Damm.
+Antônio Tavares; Beatriz Damm; Bruno da Silva; Enzo Laquiz; Filipe Soares; Gabriel Cardoso; Isadora Kane; Victor Kauê.
